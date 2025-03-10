@@ -5,7 +5,7 @@
     <i>whisp 2 interact, i tend to leave the game on while im doing other things !</i><br>
   i promise im friendly, just not the best at conversing with new people lol <br>
     really not a whole lot to say here that you cant already find on my <b><a href="https://wakerock.carrd.co/">carrd</a></b>.<br><br>
-    <b># GENERAL THINGS TO NOTE & BOUNDARIES</b><br>
+    <b>GENERAL THINGS TO NOTE & BOUNDARIES</b><br>
   we will not get along if you're needlessly rude or constantly harassing others.<br>
 i get overwhelmed very easily and may be a little quiet at times, nothing personal.<br>
 keep interactions limited if youre a minor, im on the 18+ server for a reason.<br><br>
