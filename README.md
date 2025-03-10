@@ -9,4 +9,5 @@ i get overwhelmed very easily and may be a little quiet at times, nothing person
 keep interactions limited if youre a minor, im on the 18+ server for a reason.<br><br>
 dont use the r slur around me or refer to me as "girl", im not fond of either.<br>
       if there is an issue please let me know, i need clear and direct communication !<br><br>
-  read my carrd for an actual about me, thanks for your time!</p>
+  read my carrd for an actual about me, thanks for your time!<br>
+  also sign my guestbook please please pleae i love getting little messages</p>
