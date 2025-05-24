@@ -6,6 +6,7 @@
 i get overwhelmed very easily and may be a little quiet at times, nothing personal.<br>
 keep interactions limited if youre a minor, im on the 18+ server for a reason.<br><br>
 im likely following my friends around like a sad dog, i dont often start convos first<br>
+youre free to ask to add me if we've talked for a bit! i usually keep reqs off in general<br>
       if there is an issue please let me know, i need clear and direct communication !<br><br>
   <b>read my carrd</b> for an actual about me, thanks for your time!<br>
   also sign my guestbook please please pleae i love getting little messages<br><br>
