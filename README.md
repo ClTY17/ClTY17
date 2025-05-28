@@ -5,7 +5,7 @@
   proship DNI — please do not copy my skins — i hide pretty liberally :P<br>
 i get overwhelmed very easily and may be a little quiet at times, nothing personal.<br>
 keep interactions limited if youre a minor, im on the 18+ server for a reason.<br><br>
-im likely following my friends around like a sad dog, i dont often start convos first<br>
+usually i tend to cling to those closest to me, i dont often start convos first<br>
 i keep friend reqs off but if we've gotten to know eachother a bit you're free to ask to add me!<br>
       if there is an issue please let me know, i need clear and direct communication !<br><br>
   <b>read my carrd</b> for an actual about me, thanks for your time!<br>
