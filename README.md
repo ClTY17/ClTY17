@@ -5,7 +5,7 @@
   proship DNI — please do not copy my skins — i hide pretty liberally :P<br>
 i get overwhelmed very easily and may be a little quiet at times, nothing personal.<br>
 keep interactions limited if youre a minor, im on the 18+ server for a reason.<br><br>
-typically hanging around <a href="https://github.com/THEONETRUEFREEMAN">my boyfriend</a>, i dont often start convos first, c+h is for friends only.<br>
+im only comfortable cuddling with my friends, i typically dont start conversations first.<br>
 i keep friend reqs off but if we've gotten to know eachother a bit you're free to ask to add me!<br>
       if there is an issue please let me know, i need clear and direct communication !<br><br>
   <b>read my carrd</b> for an actual about me, thanks for your time!<br>
