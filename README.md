@@ -10,6 +10,6 @@ im not comfortable with C+H from strangers and will likely move. green names are
    ship interactions are only between me and my partner. please dont flirt with me at random lol<br>
 friend reqs are always off but feel free to ask to add me if we've become more acquainted<br>
      please let me know if theres ever an issue, i need clear and direct communication !<br><br>
-  im very friendly i promise, just please respect my boundaries and we'll be cool<br>
+  im very friendly i promise, just respect my boundaries and we'll be cool<br>
 	  <b>read my carrd</b> for an actual about me, thanks for your time!<br><br>
   † † †</p>
