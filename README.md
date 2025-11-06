@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.imgur.com/ut6UEqt.png"
+  <img src="https://64.media.tumblr.com/1db39c2fd2403a2117fba1a84822deb4/d698d816cb3e0c2e-01/s250x400/60475c663f68f15dcbd828ec49245952fa233fc7.gif"
 	height=200></p> 
   <p align="center"><b>hey there! all of this is for ponytown ^_^</b><br>
     <i>whisp 2 interact, i tend to leave the game on while im doing other things !</i><br><br>
